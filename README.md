@@ -1,1 +1,1 @@
-# chimimouryou.github.io
+# chimireader.github.io
